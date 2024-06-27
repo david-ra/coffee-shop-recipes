@@ -7,6 +7,8 @@
 - 1 cup sugar
 - 2 cup water 
 - 1 vanilla bean (or 1 1/2 Tbsp vanilla extract)
+- add a pitch of salt to the ingredients
+
 
 ## How to Make
 
